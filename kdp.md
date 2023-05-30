@@ -12,7 +12,7 @@ By adopting the principles outlined in this book, organizations can expect to se
 
 In summary, the book aims to provide a comprehensive guide for organizations looking to achieve maximum efficiency and effectiveness through a productive workplace environment. It will offer practical strategies and techniques, case studies, and best practices to help readers create a workplace culture that fosters employee engagement, innovation, and continuous improvement.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
