@@ -1,5 +1,3 @@
-Promoting Work-Life Balance
-===================================================================================
 
 Fostering a positive and supportive work culture is critical for achieving a productive workplace environment. One important aspect of a positive work culture is promoting work-life balance. In this chapter, we will discuss the benefits of promoting work-life balance and strategies for doing so.
 

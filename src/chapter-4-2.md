@@ -1,5 +1,3 @@
-Providing Appropriate Equipment and Tools
-======================================================================================
 
 Providing appropriate equipment and tools is essential for creating a functional workspace that enables employees to perform at their best. In this chapter, we will explore strategies for providing appropriate equipment and tools, including the benefits of doing so, key considerations when selecting equipment and tools, and tips for implementing effective equipment and tool programs.
 

@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As businesses continue to evolve and adapt to changing market conditions and new technologies, the concept of a productive workplace environment will also continue to evolve. In this chapter, we will explore some of the future directions for achieving greater efficiency and effectiveness in business through the creation of a productive workplace environment.
 

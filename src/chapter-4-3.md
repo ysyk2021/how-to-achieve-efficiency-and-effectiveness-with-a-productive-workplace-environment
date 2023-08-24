@@ -1,5 +1,3 @@
-Ensuring a Comfortable and Safe Environment
-========================================================================================
 
 Ensuring a comfortable and safe workspace is essential for creating a productive workplace environment. In this chapter, we will explore strategies for designing a functional workspace that prioritizes employee comfort and safety, including the benefits of doing so, key considerations in designing a comfortable and safe workspace, and tips for implementing effective workspace programs.
 

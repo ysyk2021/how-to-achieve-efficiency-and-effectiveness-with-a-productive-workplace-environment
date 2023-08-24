@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Implementing strategies for achieving a productive workplace environment is critical for driving success and growth in business. In this chapter, we will explore strategies for effective implementation, overcoming barriers to implementation, and measuring the effectiveness of productive workplace environment strategies.
 

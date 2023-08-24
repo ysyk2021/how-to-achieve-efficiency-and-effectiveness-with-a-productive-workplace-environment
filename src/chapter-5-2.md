@@ -1,5 +1,3 @@
-Automating Repetitive Tasks
-=====================================================================================
 
 Automating repetitive tasks is a key component of developing effective processes and procedures in the workplace. In this chapter, we will explore strategies for automating repetitive tasks, including the benefits of doing so, key considerations in automation, and tips for implementing effective automation programs.
 

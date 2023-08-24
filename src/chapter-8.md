@@ -1,5 +1,3 @@
-Chapter 7: Sustaining Success
-=============================
 
 Creating a productive workplace environment is not a one-time event, but an ongoing process. In this chapter, we will explore strategies for maintaining and sustaining a productive workplace environment over the long term.
 

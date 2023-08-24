@@ -1,5 +1,3 @@
-Chapter 3: Designing a Functional Workspace
-===========================================
 
 Designing a functional workspace is essential for creating a productive workplace environment. In this chapter, we will explore strategies for maximizing workspace layout and design, providing appropriate equipment and tools, and ensuring a comfortable and safe environment.
 

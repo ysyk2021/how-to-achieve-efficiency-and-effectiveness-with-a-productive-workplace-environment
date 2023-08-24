@@ -1,5 +1,3 @@
-The Costs of an Unproductive Workplace Environment
-===================================================================================================================================
 
 The costs of an unproductive workplace environment can be significant for businesses. In this chapter, we will explore the costs associated with an unproductive workplace environment, including the impact on employee morale and engagement, productivity, and overall business success.
 

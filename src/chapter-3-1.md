@@ -1,5 +1,3 @@
-Understanding the Impact of a Productive Workplace Environment on Business Success
-===================================================================================================================================================================
 
 A productive workplace environment can have a significant impact on business success. In this chapter, we will discuss the ways in which a productive workplace environment can affect business success.
 

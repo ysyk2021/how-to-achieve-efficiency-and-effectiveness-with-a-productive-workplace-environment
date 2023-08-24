@@ -1,5 +1,3 @@
-Celebrating Accomplishments and Milestones
-=========================================================================
 
 Celebrating accomplishments and milestones is critical for sustaining success in a productive workplace environment. In this chapter, we will explore strategies for celebrating accomplishments and milestones, as well as the benefits of doing so.
 

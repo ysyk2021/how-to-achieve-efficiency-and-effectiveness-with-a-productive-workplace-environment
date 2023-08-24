@@ -1,5 +1,3 @@
-The Risks to Employee Engagement, Productivity, and Retention
-==============================================================================================================================================
 
 The impact of a productive workplace environment on business success cannot be overstated. In this chapter, we will explore the risks to employee engagement, productivity, and retention that arise when businesses neglect to prioritize creating a productive workplace environment.
 

@@ -1,5 +1,3 @@
-Streamlining Workflows
-================================================================================
 
 Developing effective processes and procedures is critical for streamlining workflows and creating a productive workplace environment. In this chapter, we will explore strategies for developing effective processes and procedures, including the benefits of doing so, key considerations in designing processes and procedures, and tips for implementing effective process and procedure programs.
 

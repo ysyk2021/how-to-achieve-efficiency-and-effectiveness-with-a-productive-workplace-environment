@@ -1,5 +1,3 @@
-Overcoming Barriers to Effective Implementation
-==========================================================================
 
 Overcoming barriers to effective implementation is critical for achieving success in developing a productive workplace environment. In this chapter, we will explore strategies for overcoming barriers to effective implementation, including the benefits of doing so, key considerations in implementation, and tips for implementing successful change management programs.
 
