@@ -1,5 +1,4 @@
-Chapter 12: Streamlining Workflows
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In any organization, efficient and streamlined workflows are essential for maximizing productivity and achieving success. This chapter will explore the importance of streamlining workflows and provide strategies to optimize processes in a productive workplace environment.
 

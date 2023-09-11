@@ -1,5 +1,4 @@
-Chapter 12: Measuring the Effectiveness of Productive Workplace Environment Strategies
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Implementing strategies to create a productive workplace environment is just the first step. To ensure continuous improvement and gauge the success of these strategies, it is essential to measure their effectiveness. This chapter will explore the importance of measuring workplace environment strategies and provide guidance on how to do so effectively.
 

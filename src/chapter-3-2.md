@@ -1,5 +1,4 @@
-Chapter 9: The Costs of an Unproductive Workplace Environment
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 An unproductive workplace environment can have significant costs for organizations. In this chapter, we will explore the various ways in which low productivity impacts an organization's performance, efficiency, and bottom line. By understanding these costs, organizations can take proactive measures to create a more productive workplace environment.
 

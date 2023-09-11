@@ -1,5 +1,4 @@
-Chapter 8: Examples of Successful Productive Workplace Environments in Practice
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore real-life examples of organizations that have successfully created productive workplace environments. By examining these examples, we can gain insights into the strategies and practices that contribute to their success. These organizations serve as inspiration for creating our own productive workplace environments.
 

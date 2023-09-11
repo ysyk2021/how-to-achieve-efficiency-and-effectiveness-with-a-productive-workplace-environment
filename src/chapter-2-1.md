@@ -1,5 +1,4 @@
-Chapter 1: What is a Productive Workplace Environment?
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A productive workplace environment is essential to the success of any organization. It refers to a setting where employees are motivated, engaged, and able to perform their tasks efficiently and effectively. An environment that fosters productivity is one that promotes employee well-being, creativity, and collaboration. In this chapter, we will explore the characteristics of a productive workplace environment and why it matters.
 

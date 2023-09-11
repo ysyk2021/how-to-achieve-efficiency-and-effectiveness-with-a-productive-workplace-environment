@@ -1,5 +1,4 @@
-Chapter 16: Maintaining and Sustaining a Productive Workplace Environment
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a productive workplace environment is essential, but maintaining and sustaining it requires ongoing effort and dedication. In this chapter, we will explore key strategies and practices to ensure the longevity of productivity and effectiveness within the workplace.
 

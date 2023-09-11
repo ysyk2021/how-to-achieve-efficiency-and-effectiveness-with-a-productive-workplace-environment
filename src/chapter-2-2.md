@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of a Productive Workplace Environment
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A productive workplace environment not only enhances employee satisfaction but also brings numerous benefits to organizations. In this chapter, we will explore the advantages of fostering a productive workplace environment and how it contributes to the overall success of an organization.
 

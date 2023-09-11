@@ -1,5 +1,4 @@
-Chapter 10: Ensuring a Comfortable and Safe Environment
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating a comfortable and safe workplace environment to promote efficiency and effectiveness. We will discuss the benefits of a comfortable and safe workplace, strategies for ensuring physical and psychological well-being, and tips for maintaining a positive work atmosphere.
 

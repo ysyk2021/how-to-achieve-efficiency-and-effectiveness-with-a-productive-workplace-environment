@@ -1,5 +1,4 @@
-Chapter 15: Celebrating Accomplishments and Milestones
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Celebrating accomplishments and milestones in a productive workplace environment is crucial for employee morale, motivation, and fostering a positive work culture. In this chapter, we will explore the importance of recognizing achievements and provide strategies for effectively celebrating accomplishments and milestones.
 

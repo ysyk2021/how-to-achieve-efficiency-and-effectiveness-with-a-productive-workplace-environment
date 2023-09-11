@@ -1,5 +1,4 @@
-Chapter 10: Understanding the Impact of a Productive Workplace Environment on Business Success
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A productive workplace environment plays a crucial role in determining the success of a business. In this chapter, we will explore the various ways in which a productive workplace environment positively impacts an organization's performance, employee satisfaction, and overall business outcomes. By understanding this impact, organizations can prioritize creating and maintaining a productive work environment to drive their success.
 

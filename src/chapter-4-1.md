@@ -1,5 +1,4 @@
-Chapter 8: Maximizing Workspace Layout and Design
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of maximizing workspace layout and design in creating an efficient and effective workplace environment. We will discuss how a well-designed workspace can enhance productivity, collaboration, and employee well-being. We will also provide practical tips for optimizing workspace layout and design.
 

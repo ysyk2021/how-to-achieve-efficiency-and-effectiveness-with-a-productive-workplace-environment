@@ -1,5 +1,4 @@
-Chapter 9: Promoting Work-Life Balance
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of promoting work-life balance in achieving efficiency and effectiveness within the workplace environment. We will discuss the benefits of work-life balance for both employees and organizations. Additionally, we will provide practical strategies and tips for individuals and organizations to prioritize work-life balance.
 

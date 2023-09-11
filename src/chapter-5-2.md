@@ -1,5 +1,4 @@
-Chapter 11: Automating Repetitive Tasks
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Automation is a powerful tool for achieving efficiency and effectiveness in the workplace. By automating repetitive tasks, individuals and organizations can save time, reduce errors, and free up valuable resources. In this chapter, we will explore the benefits of automation and discuss strategies for implementing it successfully.
 

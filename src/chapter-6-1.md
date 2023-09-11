@@ -1,5 +1,4 @@
-Chapter 9: Encouraging Collaboration and Cooperation
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering collaboration and cooperation within a workplace environment to achieve efficiency and effectiveness. We will discuss the benefits of collaborative work, strategies for promoting collaboration, and tips for enhancing cooperation among team members.
 

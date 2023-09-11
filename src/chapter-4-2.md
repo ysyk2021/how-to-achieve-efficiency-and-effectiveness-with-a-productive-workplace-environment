@@ -1,5 +1,4 @@
-Chapter 10: Providing Appropriate Equipment and Tools
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of providing employees with appropriate equipment and tools to create an efficient and effective workplace environment. We will discuss the benefits of investing in quality equipment, considerations for selecting the right tools, and strategies for maintaining and upgrading equipment.
 
